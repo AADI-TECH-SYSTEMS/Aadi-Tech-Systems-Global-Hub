@@ -1,5 +1,5 @@
 # 🚩 AADI-TECH SYSTEMS: STARTING THE REVOLUTION 🚩
-
+🚀 PROJECT DELTA IS LIVE: REGISTER NOW AT adityarai3313@gmail.com
 **Founder & Lead Architect:** Aditya Rai  
 **Primary Source of Truth:** [Official Manifesto on Archive.org](https://archive.org/details/textfile_202604)
 
